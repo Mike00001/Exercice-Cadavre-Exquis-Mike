@@ -27,3 +27,4 @@ La recette de sa préparation demeurait connue par seulement 2 individus du grou
 
 Supercalifragilisticexpialidocious
 
+Syndrome de la page pourpre ! Je n'arrives plus à remplir ces cases vides laissées au hasard d'un destin précaire !
